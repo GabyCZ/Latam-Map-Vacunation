@@ -1,0 +1,1 @@
+# Latam-Map-Vacunation
